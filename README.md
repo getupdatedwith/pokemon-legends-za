@@ -3,7 +3,7 @@ Pokémon Legends: Z‑A Releases in Late 2025!​
 
 
 
-Pokémon Legends ZA{https://detachedauraencircle.com/vdk5sthj?key=b5be9503f04c97774645583b95b06563}: What We Know (Hypothetical Breakdown)
+[Pokémon Legends ZA](https://detachedauraencircle.com/vdk5sthj?key=b5be9503f04c97774645583b95b06563): What We Know (Hypothetical Breakdown)
 (Note: Details are speculative until official confirmation.)
 
 1. Title and Concept(https://detachedauraencircle.com/vdk5sthj?key=b5be9503f04c97774645583b95b06563)
